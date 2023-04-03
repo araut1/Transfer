@@ -1,3 +1,1 @@
-• Absolute Accountability - Take accountability for delivering on commitments; own mistakes and use them as opportunities for learning and development; openly discuss my actions and their consequences, both good and bad.
-• Purposeful Collaboration - Respond positively to requests; help others achieve their goals; consider how my actions will impact others; look for ways to contribute to the team.
-• Communicate assignment status and concise information on the nature of any risks/issues.
+I own my mistakes and help others achieve their goals. I communicate assignment status and any risks. However, I could improve in identifying potential issues, sharing ideas, and communicating more promptly. I am proud of my progress and will continue to work on these areas.
