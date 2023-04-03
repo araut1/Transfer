@@ -1,13 +1,12 @@
 Financial
 
-• Contribute to financial accuracy by logging hours timely and accurately meeting the organization's instructions for daily, weekly, and monthly time recording, ensuring internal billing and client invoicing occurs in the correct financial month, and avoiding rework.
-• All hours for scheduled work time and time off are accounted for in the time entry system by Friday EOD and the last day of the month. The name shouldn't be flagged on accurate and timely time reporting in any internal or corporate reports.
+While I focused on logging my hours in a timely and accurate manner, there were a few instances where I missed the Friday EOD deadline submiting correct time entry. However, I have worked on it and now I am submitng correctly.
 
 
 
 Strategic
 
-• Drive for Results by setting ambitious targets, focusing on what really makes a difference (not being constrained by past methods), and being optimistic and tenacious in the face of difficulties. Anticipate obstacles and be ready, willing and able to overcome them.
+In the past year, I have consistently demonstrated a strong Drive for Results, setting ambitious targets and relentlessly pursuing them. I have remained optimistic and tenacious even in the face of significant challenges, consistently seeking out new and innovative solutions to overcome obstacles. My ability to anticipate potential roadblocks and proactively address them has been a key factor in my success, and I am proud of the progress I have made towards achieving our strategic goals.
 
 
 
@@ -16,9 +15,7 @@ Strategic
 
 Operational
 
-• Learn a new subsystem and deliver related assignments/commitments.
-• Attend an external business or technical training session and share information with the team by presentation or written summary.
-• Complete all required corporate, healthcare, and project training by deadlines without reminders.
+I completed all required corporate, healthcare, and project training on time without any reminders, which ensured that I was fully equipped to handle any challenges. 
 
 
 
@@ -27,8 +24,7 @@ Operational
 
 Other
 
-• I will work on my individual development, thus enabling the opportunity for long- and short-term growth and/or internal mobility.
-• I shall safeguard the company and position Gainwell for continued success in the market through adherence to our Security Awareness, HIPAA, Code of Business Conduct, and all other required corporate training.
+I am pleased to report that I have successfully achieved my goals of individual development and safeguarding the company through adherence to necessary protocols. My commitment to continuous learning has enabled  to contribute to the company's long & short term growth, while my strict adherence to security protocols and corporate training has helped position Gainwell for continued success in the market. I am confident that I will continue to strive towards excellence in these areas for the future.
 
 
 
